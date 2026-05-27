@@ -8,5 +8,5 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ $${\color{#69556B}she}$$ $${\color{#806677}/}$$ $${\color{#937981}her}$$ ㅤ $${\color{#BAA191}he}$$ </br>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  $${\color{#69556B}yhs}$$ $${\color{#937981}fans}$$ $${\color{#BAA191}iwec}$$ </br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤ <a href= "https://github.com/samgIadiator">alt</a> ㅤ <a href= "https://rentry.co/samgladiator">rntry</a> </br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤ <a href= "https://github.com/samgIadiator">alt</a> ㅤ <a href= "https://rentry.co/samgladiator">rntry</a> </br>
 </p>
