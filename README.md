@@ -2,8 +2,6 @@
 <div align="right"> ㅤ </div>
 <div align="right"> ㅤ </div>
 <div align="right"> ㅤ </div>
-<div align="right"> ㅤ </div>
-<div align="right"> ㅤ </div>
 <p align="left">
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤ $${\color{#69556B}yuki}$$ $${\color{#806677}or}$$ $${\color{#937981}sam}$$ $${\color{#A68D89}♡}$$ </br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤ $${\color{#69556B}she}$$ $${\color{#806677}/}$$ $${\color{#937981}her}$$ ㅤ $${\color{#BAA191}he}$$ </br>
