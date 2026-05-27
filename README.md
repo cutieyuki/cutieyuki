@@ -5,7 +5,7 @@
 <p align="left">
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ $${\color{#69556B}yuki}$$ $${\color{#806677}or}$$ $${\color{#937981}sam}$$ $${\color{#BAA191}♡}$$ </br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤ $${\color{#69556B}saph}$$ $${\color{#806677}x}$$ $${\color{#937981}gendr}$$ $${\color{#BAA191}fae}$$ </br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤ $${\color{#69556B}she}$$ $${\color{#806677}/}$$ $${\color{#937981}her}$$ ㅤ $${\color{#BAA191}he}$$ </br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $${\color{#69556B}she}$$ $${\color{#806677}/}$$ $${\color{#937981}her}$$ ㅤ $${\color{#BAA191}he}$$ </br>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  $${\color{#69556B}yhs}$$ $${\color{#937981}fans}$$ $${\color{#BAA191}iwec}$$ </br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤ <a href= "https://github.com/samgIadiator">alt</a> ㅤ <a href= "https://rentry.co/samgladiator">rntry</a> </br>
