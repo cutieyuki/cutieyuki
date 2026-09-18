@@ -4,8 +4,8 @@
 <div align="right"> ㅤ </div>
 <p align="left">
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ $${\color{#69556B}yuki}$$ $${\color{#806677}or}$$ $${\color{#937981}sam}$$ $${\color{#BAA191}♡}$$ </br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤ $${\color{#69556B}queer}$$ $${\color{#806677}x}$$ $${\color{#937981}bi}$$ $${\color{#BAA191}gender}$$ </br>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $${\color{#69556B}she}$$ $${\color{#806677}/}$$ $${\color{#937981}her}$$ ㅤ $${\color{#BAA191}he}$$ </br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤ $${\color{#69556B}queer}$$ $${\color{#806677}x}$$ $${\color{#937981}trans}$$ $${\color{#BAA191}masc}$$ </br>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $${\color{#69556B}he}$$ $${\color{#806677}/}$$ $${\color{#937981}him}$$ ㅤ $${\color{#BAA191}it}$$ </br>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ  $${\color{#69556B}yhs}$$ $${\color{#937981}fans}$$ $${\color{#BAA191}iwec}$$ </br>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ ㅤ <a href= "https://github.com/samgIadiator">alt</a> ㅤ <a href= "https://rentry.co/samgladiator">rntry</a> </br>
